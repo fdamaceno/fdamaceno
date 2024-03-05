@@ -2,7 +2,7 @@
 
 *`b.sc physics student`*
 
-*undergraduate research in quantum field theory.*
+*undergraduate research in general relativity.*
 
 *my [CV](http://lattes.cnpq.br/8846392425401204)*
  
